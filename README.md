@@ -8,4 +8,3 @@
 - 📫 How to reach me: nothing
 - 😄 Pronouns: nothing
 - ⚡ Fun fact: nothing
--->
